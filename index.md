@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to our Pages
 
 This website will record the long road of WYH&DZY. 
 
